@@ -1,4 +1,2 @@
-# BsX4CEE
+# BsX4CEE DDoS
 #Tools DDoS For Samp,Gtps,Website..
-#ABUSE PECAH PALAKAU
-#PLEASE DON'T ABUSE
